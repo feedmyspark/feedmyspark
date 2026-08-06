@@ -1,6 +1,6 @@
 You may have found this page through Pony Town. If not, please ignore it!
 
-Hello! You may refer to me as Bane, Blurr or Keeper. I am an artist, I have my own TF oc you may see me in more than often in PT (if you're interested there's more info about him at the bottom.) I am in many fandoms, ranging but not limited to;
+Hello! You may refer to me as Bane, Blurr or Keeper. I am an artist, I have my own TFA oc you may see me in more than often in PT! I am in many fandoms, ranging but not limited to;
 * Warframe
 * Teenage Mutant Ninja Turtles ❌
 * Sonic the Hedgehog ❌
@@ -31,9 +31,11 @@ I can be overly shy and excited while meeting new people, you may have to start 
 * Maga / Bigots- I don't wanna deal with any of you scum. Insta block.
 * Ignorant people - This is specifically targetted to those who refuse to learn at al. You're gonna be hidden, blocked at worst.
 
-  INT:
+INT:
 * Artists - I need more cool artist friend, I don't care if you think your art is bad pls be my friend!
 * Transformer fans - I need more cool transformers fan friends, I only have two as of today...
-* Writers - I also need more cool writer friends... 
+* Writers - I also need more cool writer friends...
+
+
   
 more to be added soon!
