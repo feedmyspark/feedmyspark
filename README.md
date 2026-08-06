@@ -7,16 +7,13 @@ Hello! You may refer to me as Bane, Blurr or Keeper. I am an artist, I have my o
 * The Freak Circus ❌
 * Spider-man
 * Deadpool
-* Legend of Zelda
 * Phighting ❌
 * Blocktales ❌
 * Regretevator ❌
 * Madness Combat
 * Die of Death
-* Ben 10
 * Brave Police J-Deckerd
 * The Summer Hikaru Died
-* Pokemon
 * Undertale ❌
 * Deltarune ❌
 
