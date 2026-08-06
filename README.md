@@ -35,6 +35,7 @@ My English is not the best at times because im playing on a laptop and I have no
 * People who make Epstein / file jokes - Again, self explanatory. You guys are insensitive or just "ragebaiter," insta block.
 * Maga / Bigots- I don't wanna deal with any of you scum. Insta block.
 * Ignorant people - This is specifically targetted to those who refuse to learn at all even when educated politely. You're gonna be hidden, blocked at worst.
+* Don't stand over my ponies -  unless I stand behind you myself, I just really like looking at my ponies that's all. This won't get you immediately blocked but it will get you hidden.
 
 INT:
 * Artists - I need more cool artist friend, I don't care if you think your art is bad pls be my friend!
