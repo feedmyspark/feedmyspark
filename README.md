@@ -19,6 +19,7 @@ Hello! You may refer to me as Bane, Blurr or Keeper. I am an artist, I have my o
 * Pokemon
 * Undertale ❌
 * Deltarune ❌
+
 BUT at the moment im mostly interested in talking about Transformers. Specially about Animated, Earthspark, and Generation one. But I won't object to talking about any other iteration (except Bayverse) or fandoms except those marked up with an X. I don't want to hear or interact with its fandoms becaouse of reasons, some of the people in those fandoms are actually unbearable and miserable and I don't want that near me and won't hesitate to block you if you come with the intent to make me uncomfortable and test limits.
 
 You may find me ingame mostly lurking around the TF area in both safe server and +18 (rarely), mostly just listening to music, drawing, writing, or sitting beside/infront of a user im more than likely whispering to. In the case that you find me writing, offtab or just sitting infront/beside a person, please wait before interacting with me, you may send a whisper of your own or sit next to me for the meantime, there will be a moment I will direct my attention to you. I'm more than happy to make friends and meet new people, but the moment you do womething I don't like I won't hesitate to cut the interaction short. View DNI & BOUNDARIES for stuff to avoid doing. 
